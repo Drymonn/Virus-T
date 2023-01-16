@@ -1,1 +1,3 @@
-# Virus-T
+ADVERSIMENT
+im not responsable for your accions 
+this not a prank this can damage the operating system
